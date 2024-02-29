@@ -1,1 +1,1 @@
-This project is a list of reddit posts I make while my account is suspended. Because you just never know, right? The list will be updated as I post.
+This project is a list of reddit posts I make while my account is suspended. Because you just never know, right? The list will be updated as I post. Some posts included images I had posted, and I will try to include those eventually.
